@@ -1,0 +1,2 @@
+# Ngapadibuka
+Cuma script
