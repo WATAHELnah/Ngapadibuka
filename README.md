@@ -1,2 +1,3 @@
 # Ngapadibuka
 Cuma script
+'osksjsj'
